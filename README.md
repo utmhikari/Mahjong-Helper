@@ -3,7 +3,7 @@
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
-日麻助手V0.50软件下载：<a href=http://pan.baidu.com/s/1gfeCsgF></a>
+日麻助手V0.50软件下载：<a href="http://pan.baidu.com/s/1gfeCsgF"></a>
 
 软件介绍
 ---
