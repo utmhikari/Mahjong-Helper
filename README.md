@@ -3,7 +3,8 @@
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
-软件下载：<a href="http://pan.baidu.com/s/1gfeCsgF">Mahjong_Helper V0.50</a>
+软件下载：[Mahjong_Helper V0.50](https://pan.baidu.com/s/1JN8N5XBwwWnLyY9h3SWjPg)（kra2）
+复制这段内容后打开百度网盘手机App，操作更方便哦)
 
 软件介绍
 ---
