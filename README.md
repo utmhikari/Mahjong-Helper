@@ -5,7 +5,7 @@
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
 本软件切勿用于商业用途！！！！！</br>
-软件下载：[Mahjong_Helper V0.50](https://pan.baidu.com/s/1JN8N5XBwwWnLyY9h3SWjPg)（kra2）
+软件下载：[Mahjong_Helper V0.50](https://pan.baidu.com/s/1G-j_RkqtsgciKKGQF1MC2w)（saki）
 
 ## 软件介绍
 
